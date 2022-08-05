@@ -1,1 +1,0 @@
-# genevieve-burbano.github.io
